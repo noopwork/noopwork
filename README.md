@@ -10,7 +10,7 @@
 
 graphic by my bf (his first one pls be nice)
 
-![image](https://64.media.tumblr.com/8f1bb7f1985d7b3b4936a90be1ce3cad/a2b9a9b92798b874-6b/s250x400/e1e7648a646be2f95650d3460d2079b46160314c.gifv)
+![image](https://64.media.tumblr.com/b186c84c850af7b517a9a178843b6b8a/2f622681132a59ed-32/s75x75_c1/d7b36f3a2bfb0414782d8fc0aa9ab0cccc8c42d4.gifv) ⠀ ⠀ ![image](https://64.media.tumblr.com/8f1bb7f1985d7b3b4936a90be1ce3cad/a2b9a9b92798b874-6b/s250x400/e1e7648a646be2f95650d3460d2079b46160314c.gifv) ⠀ ⠀![image](https://64.media.tumblr.com/b186c84c850af7b517a9a178843b6b8a/2f622681132a59ed-32/s75x75_c1/d7b36f3a2bfb0414782d8fc0aa9ab0cccc8c42d4.gifv)
 
 
 ![image](https://pixelsafari.neocities.org/favicon/nature/water5.gif)    𐔌 ⠀ ⠀tobias    jacob    guide ⠀ ⠀    ͏ི  ⠀ ⠀   ೃ    ![image](https://pixelsafari.neocities.org/favicon/nature/water2.gif)
