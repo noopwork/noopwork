@@ -10,7 +10,7 @@ graphic by my bf (his first one pls be nice)
 ![image](https://64.media.tumblr.com/8f1bb7f1985d7b3b4936a90be1ce3cad/a2b9a9b92798b874-6b/s250x400/e1e7648a646be2f95650d3460d2079b46160314c.gifv)
 
 
-![image](https://pixelsafari.neocities.org/favicon/nature/water5.gif)    𐔌 ⠀ ⠀noopwork    guide ⠀ ⠀    ͏ི  ⠀ ⠀   ೃ    ![image](https://pixelsafari.neocities.org/favicon/nature/water2.gif)
+![image](https://pixelsafari.neocities.org/favicon/nature/water5.gif)    𐔌 ⠀ ⠀tobias    jacob    guide ⠀ ⠀    ͏ི  ⠀ ⠀   ೃ    ![image](https://pixelsafari.neocities.org/favicon/nature/water2.gif)
 
  he    him    pan ⠀ ⠀ ➼ ⠀ ⠀ eng     /    viet    ⏖     ![image](https://pixelsafari.neocities.org/favicon/nature/star/star97.gif)
 
