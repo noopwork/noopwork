@@ -2,8 +2,7 @@
 
 ![image](https://64.media.tumblr.com/deee6a495e437707ee97fcee1c2075ee/6eabe8cd53a3e20b-06/s1280x1920/92b936f710f56562dd838e4969c1a195431e11e0.gifv)
 
-![image](https://i.postimg.cc/T292yXSH/white.png) ⠀ ⠀ ![༺](https://komarev.com/ghpvc/?username=noopwork&color=2d4e86) ⠀ ⠀ ![image](https://i.postimg.cc/Pfw3Km1f/blue.gif)
-
+![image](https://i.postimg.cc/T292yXSH/white.png) ⠀ ⠀ 
 
 ![image](https://i.postimg.cc/4d103pJ5/zw9250.png) 
 
