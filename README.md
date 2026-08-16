@@ -1,7 +1,11 @@
 <div align="center">
 
 ![image](https://64.media.tumblr.com/deee6a495e437707ee97fcee1c2075ee/6eabe8cd53a3e20b-06/s1280x1920/92b936f710f56562dd838e4969c1a195431e11e0.gifv)
-![image](https://i.postimg.cc/4d103pJ5/zw9250.png)
+
+![image](https://i.postimg.cc/T292yXSH/white.png) ⠀ ⠀ ![༺](https://komarev.com/ghpvc/?username=noopwork&color=2d4e86) ⠀ ⠀ ![image](https://i.postimg.cc/Pfw3Km1f/blue.gif)
+
+
+![image](https://i.postimg.cc/4d103pJ5/zw9250.png) 
 
 ![image](https://64.media.tumblr.com/182f5a0b06cefee587b0d524e006e62a/2da2858b31ee9497-77/s1280x1920/7b5c73057274d004f4906351ccbbfc4f80bedcdc.pnj)
 
