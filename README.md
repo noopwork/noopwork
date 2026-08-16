@@ -14,7 +14,7 @@ graphic by my bf (his first one pls be nice)
 
  he    him    pan ⠀ ⠀ ➼ ⠀ ⠀ eng     /    viet    ⏖     ![image](https://pixelsafari.neocities.org/favicon/nature/star/star97.gif)
 
-  𓎠𓎠   𓏵  low 𓏼 energy  ◞   social 𓏼 anxiety    𓈒   ![image](https://pixelsafari.neocities.org/favicon/object/tech/computer3.gif)
+  𓎠𓎠   𓏵  low 𓏼 energy◞    𓈒   ![image](https://pixelsafari.neocities.org/favicon/object/tech/computer3.gif)
 
    𓂃 ࣪˖      [s.straw](https://noopwork.straw.page)       [s.ata](https://noopwork.atabook.org/)        ![image](https://pixelsafari.neocities.org/favicon/object/stationery/paper5.gif)
 
