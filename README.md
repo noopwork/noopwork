@@ -3,9 +3,9 @@
 ![image](https://64.media.tumblr.com/deee6a495e437707ee97fcee1c2075ee/6eabe8cd53a3e20b-06/s1280x1920/92b936f710f56562dd838e4969c1a195431e11e0.gifv)
 ![image](https://i.postimg.cc/4d103pJ5/zw9250.png)
 
-![image](https://media.discordapp.net/attachments/1126627656310468700/1538427654154231849/IMG_2949.jpg?ex=6a82a3e7&is=6a815267&hm=dfd151c7dd95d82e67159727b8f37534d83d304a6b7a010ab107d4f790205b72&=&format=webp&width=1024&height=839)
+![image](https://64.media.tumblr.com/182f5a0b06cefee587b0d524e006e62a/2da2858b31ee9497-77/s1280x1920/7b5c73057274d004f4906351ccbbfc4f80bedcdc.pnj)
 
-artwork belongs to @astrophileic on pin
+graphic by my bf (his first one pls be nice)
 
 ![image](https://64.media.tumblr.com/8f1bb7f1985d7b3b4936a90be1ce3cad/a2b9a9b92798b874-6b/s250x400/e1e7648a646be2f95650d3460d2079b46160314c.gifv)
 
