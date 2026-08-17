@@ -24,3 +24,4 @@ graphic by my bf (his first one pls be nice)
  ⌒⌒    ![image](https://i.postimg.cc/9QZDS94M/red.gif) ![image](https://i.postimg.cc/cH46r5FK/blue.gif)    𓈒
 
  ![image](https://64.media.tumblr.com/deee6a495e437707ee97fcee1c2075ee/6eabe8cd53a3e20b-06/s1280x1920/92b936f710f56562dd838e4969c1a195431e11e0.gifv)
+![image](https://64.media.tumblr.com/0099a44b75ff6ab87288d66bdf655c0d/a850138986ca824b-2f/s250x400/02472c65883224c018e20268c05cb2a19b564ef3.gifv)
